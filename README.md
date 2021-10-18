@@ -1,0 +1,1 @@
+# WinStars_Technology_Test_task
